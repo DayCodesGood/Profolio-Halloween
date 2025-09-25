@@ -1,2 +1,2 @@
 # Profolio-Halloween
-I follwed a tutorial however I added on to what they did
+I followed a tutorial however I added on to what they did
